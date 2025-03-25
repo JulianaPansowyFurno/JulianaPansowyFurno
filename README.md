@@ -16,9 +16,9 @@ Here are some ideas to get you started: -->
 
 - 💬 Ask me about anything, Except grammar:sweat_smile:
 
-- 👨‍💻 I am curretly studing to enter university
+- 👨‍💻 I am curretly studying at UTN 
 
-- ⚡ Fun fact: I waste most of my time watching netflix
+- ⚡ Fun fact: I waste most of my time watching series
 
   <br/>
 
